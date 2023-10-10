@@ -1,1 +1,1 @@
-# Ayush-college-resume
+# Resume
